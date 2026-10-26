@@ -31,11 +31,13 @@ Just know, you are permitted to use the code here... Just dont use the images! t
 </p> 
 ㅤ 1. Only ONE person can nominate a character! Once a character is claimed, you cannot claim the character of that source. 
 
-ㅤ 2. First come, first serve! 
+ㅤ 2. You can be nominated onto multiple categories!
 
-ㅤ 3. Don't be upset when your character ends up being claimed. Just claim another one! Don't make a scene out of it! 
+ㅤ 3. First come, first serve! 
 
-ㅤ 4. Basic rules, you know the drill.
+ㅤ 4. Don't be upset when your character ends up being claimed. Just claim another one! Don't make a scene out of it! 
+
+ㅤ 5. Basic rules, you know the drill.
 </p>
 </p>
 
@@ -47,8 +49,17 @@ Just know, you are permitted to use the code here... Just dont use the images! t
   <img src="https://i.postimg.cc/kXSwzHVY/nomination-pj-div.png" alt="nomi div" width="500"> <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="140" alt="pj logo"><br>
 </p> 
 ㅤ Here comes the fun part!
-</p>
-<p align="left"> 
+
+### ***POPULAR PEOPLE (195+ FOLLOWERS)***
+
+### ***ALWAYS ONLINE***
+
+### ***PRETTIEST SKINS***
+
+### ***PRETTIEST LAYOUTS***
+
+### ***CHARACTER NOMINATIONS***
+ 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/dead-blooming-roses">dead-blooming-roses</a> is Pony Town's GhostFace (SCREAM) !
-  <p align="left"> 
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/screworangeslugs">screworangeslugs</a> is Pony Town's SideTrio (HOOPS&YOYO) !
