@@ -20,10 +20,32 @@ Just know, you are permitted to use the code here... Just dont use the images! t
         ㅤ<br>
       </th>
     </table>
-<p align="left">
-  <img src="https://i.postimg.cc/PqzQVMZz/piddles-jet-airlines-div.png" alt="pj airlines" width="650">
-</p>
-$\color{#0098d2}\text{Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is made specially for nominating various types of people. You may nominate ANYONE... Even yourself!}$
+ㅤ<br>
+ㅤ<img src="https://i.postimg.cc/PqzQVMZz/piddles-jet-airlines-div.png" width="500" alt="pj airlines"><br>
+ㅤ $\color{#0098d2}{\textsf{Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is a fan-run community project and nomination hub. You may nominate ANYONE... Even yourself!}}$<br>
+ㅤ $\color{#0098d2}{\textsf{I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. ~~also, why did i theme this off of Piddles..??? I don't even like her that much, I'm a Newbie fan.~~}}$<br>
+  <br clear="left" />
 
-$\color{#0098d2}\text{Now we primarily are based on Pony Town... But really, there's no limits to nominating people here. Just make sure they have an appropriate and public social account.}$
-wip yo
+<p align="left">
+  <img src="https://i.postimg.cc/mktZhBs4/piddles-jet-onboard-rules-div.png" alt="onb div" width="500"><br>
+</p> 
+ㅤ $\color{#97cdd4}{\textsf{1.}}$ $\color{#0098d2}{\textsf{Only ONE person can nominate a character! Once a character is claimed, you cannot claim the character of that source.}}$<br>
+ㅤ $\color{#97cdd4}{\textsf{2.}}$ $\color{#0098d2}{\textsf{First come, first serve!}}$<br>
+ㅤ $\color{#97cdd4}{\textsf{3.}}$ $\color{#0098d2}{\textsf{Don't be upset when your character ends up being claimed. Just claim another one! Don't make a scene out of it!}}$<br>
+ㅤ $\color{#97cdd4}{\textsf{4.}}$ $\color{#0098d2}{\textsf{Basic rules, you know the drill.}}$<br>
+</p>
+</p>
+
+<p align="left">
+  <img src="https://i.postimg.cc/DZ705rdM/piddles-jet-div.png" alt="lazy titling core" width=1060"><br>
+</p> 
+
+<p align="left">
+  <img src="https://i.postimg.cc/kXSwzHVY/nomination-pj-div.png" alt="nomi div" width="500"> <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="140" alt="pj logo"><br>
+</p> 
+ㅤ $\color{#0098d2}{\textsf{Here comes the fun part!}}$<br>
+</p>
+<p align="left">
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="50" alt="photoshoot"> $\color{#0098d2}{\textsf{[SCREWORANGESLUGS](https://github.com/screworangeslugs) is Pony Town's SideTrio (HOOPS&YOYO) !}}$<br>
+<p align="left">
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="50" alt="photoshoot"> $\color{#0098d2}{\textsf{[dead-blooming-roses](https://github.com/dead-blooming-roses) is Pony Town's GhostFace (SCREAM) !}}$<br>
