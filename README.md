@@ -23,8 +23,6 @@ Just know, you are permitted to use the code here... Just dont use the images! t
 <p align="left">
   <img src="https://i.postimg.cc/PqzQVMZz/piddles-jet-airlines-div.png" alt="pj airlines" width="650">
 </p>
-<p>
-  $\color{#F27C2B}\text{Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is made specially for nominating various types of people. You may nominate ANYONE... Even yourself!}$
-
-  $\color{#f27c2b}\text{Now we primarily are based on Pony Town... But really, there's no limits to nominating people here. Just make sure they have an appropriate and public social account!}$
+$\color{#0098d2}\text{Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is made specially for nominating various types of people. You may nominate ANYONE... Even yourself!}$
+$\color{#0098d2}\text{Now we primarily are based on Pony Town... But really, there's no limits to nominating people here. Just make sure they have an appropriate and public social account.}$
 wip yo
