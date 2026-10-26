@@ -22,7 +22,7 @@ Just know, you are permitted to use the code here... Just dont use the images! t
     </table>
 ㅤ<br>
 ㅤ<img src="https://i.postimg.cc/PqzQVMZz/piddles-jet-airlines-div.png" width="500" alt="pj airlines"><br>
-ㅤ Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is a fan-run community project and nomination hub. You may nominate ANYONE... Even yourself! <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/JHNrMN2b/ezgif-com-gif-maker-(2).gif' border='0' alt='ezgif-com-gif-maker-(2)'></a> <br>
+ㅤ Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is a fan-run community project and nomination hub. You may nominate ANYONE... Even yourself!<img src="https://i.postimg.cc/2yJVdTdX/ezgif-com-gif-maker-(2).gif" width="30" alt="j"> <br>
 ㅤ I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. ~~also, why did i theme this off of Piddles..??? I don't even like her that much, I'm a Newbie fan.~~ <br>
   <br clear="left" />
 
