@@ -48,7 +48,7 @@ Just know, you are permitted to use the code here... Just dont use the images! t
 </p> 
 ㅤ Here comes the fun part!
 </p>
-<p align="left">
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> [screworangeslugs](https://github.com/screworangeslugs) is Pony Town's SideTrio (HOOPS&YOYO) ! }}$<br>
-<p align="left">
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> [dead-blooming-roses](https://github.com/dead-blooming-roses) is Pony Town's GhostFace (SCREAM) !
+<p align="left"> 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/dead-blooming-roses">dead-blooming-roses</a> is Pony Town's GhostFace (SCREAM) !
+  <p align="left"> 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/screworangeslugs">screworangeslugs</a> is Pony Town's SideTrio (HOOPS&YOYO) !
