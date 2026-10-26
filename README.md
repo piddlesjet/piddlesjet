@@ -24,5 +24,6 @@ Just know, you are permitted to use the code here... Just dont use the images! t
   <img src="https://i.postimg.cc/PqzQVMZz/piddles-jet-airlines-div.png" alt="pj airlines" width="650">
 </p>
 $\color{#0098d2}\text{Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is made specially for nominating various types of people. You may nominate ANYONE... Even yourself!}$
+
 $\color{#0098d2}\text{Now we primarily are based on Pony Town... But really, there's no limits to nominating people here. Just make sure they have an appropriate and public social account.}$
 wip yo
