@@ -1,6 +1,8 @@
 <!--
 Hello there, passenger! i bet you didnt expect to see the captain himself greeting you here, huh? wel... its not something that happens  to everyone! if you are seeing this text, then that means you are forking the P.J repo. dont worry, the cap wont be punishing you...
 Just know, you are permitted to use the code here... Just dont use the images! theyre P.J property only.
+
+layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 -->
 
 <p align="center">
@@ -51,14 +53,35 @@ Just know, you are permitted to use the code here... Just dont use the images! t
 
 ### ***POPULAR PEOPLE (195+ FOLLOWERS)***
 
+
 ### ***ALWAYS ONLINE***
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/h6xoi">h6xoi</a>
 
 ### ***PRETTIEST SKINS***
 
+
 ### ***PRETTIEST LAYOUTS***
 
+
+### ***CUDDLE BUGS***
+
+
 ### ***CHARACTER NOMINATIONS***
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/77crescentmoon">77crescentmoon</a> is Pony Town's Edward ParrotX2 (UNSTABLE SMP) & Kyle (SOUTH PARK) !
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Chemicalshot">Chemicalshot</a> is Pony Town's Wemmbu (MCYT) and Yourmind (WONDERLAND.JAR) !
  
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/dead-blooming-roses">dead-blooming-roses</a> is Pony Town's GhostFace (SCREAM) !
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> is Pony Town's Squirrelflight (WARRIOR CATS) !
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/h6xoi">h6xoi</a> is Pony Town's Edward Elric (FULLMETAL ALCHEMIST) !
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> is Pony Town's Mikado Kasuga (KASURICH) !
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/screworangeslugs">screworangeslugs</a> is Pony Town's SideTrio (HOOPS&YOYO) !
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/UNLEASH-NOLI">UNLEASH-NOLI</a> is Pony Town's NOLI (ROBLOX , ALL ITERATIONS) !
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/yubelsrevenge">yubelsrevenge</a> is Pony Town's Judai Yuki (YUGIOH GX) !
