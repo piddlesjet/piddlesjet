@@ -13,7 +13,7 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
     <tr align="center"></tr>
       <th>
         ㅤ<br>
-        <img src="https://komarev.com/ghpvc/?username=piddlesjet&color=97cdd4&style=plastic"><br>
+        <img src="https://komarev.com/ghpvc/?username=piddlesjet&color=97cdd4&style=plastic&abbreviated=true&label=/PIDDLES.JET"><br>
         ㅤ<br>
         <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="140" alt="pj logo"><br>
         ㅤ<br>
