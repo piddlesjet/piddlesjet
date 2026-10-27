@@ -96,6 +96,9 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/yubelsrevenge">yubelsrevenge</a> is Pony Town's Judai Yuki (YUGIOH GX) !
 
+## SPECIAL CATEGORY <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="40" alt="pj logo"><br>
+  <img src="https://cdn.discordapp.com/emojis/1318346709662957589.jpg" width="20" alt="fat yoyo"> YOYO'S BIGGEST HATER = <a href="https://github.com/screworangeslugs">screworangeslugs</a>
+
 <!--
 copy&paste im too lazy bleeeeh
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ghuser">ghuser</a> is Pony Town's char (source) !
