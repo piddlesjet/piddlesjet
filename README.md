@@ -25,9 +25,9 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 ㅤ<br>
 ㅤ<img src="https://i.postimg.cc/PqzQVMZz/piddles-jet-airlines-div.png" width="500" alt="pj airlines"><br>
 ㅤ 
-ㅤ $\color{#0098d2}\text{Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is a fan-run community project and nomination hub. You may nominate ANYONE... Even yourself!}$<img src="https://i.postimg.cc/2yJVdTdX/ezgif-com-gif-maker-(2).gif" width="30" alt="j"> 
+ㅤ $\color{#0098d2}\text{Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is a fan-run community project and nomination hub. You may nominate ANYONE... Even yourself!}$<img src="https://i.postimg.cc/2yJVdTdX/ezgif-com-gif-maker-(2).gif" width="30" alt="j"><br> 
 
-ㅤ $\color{#97cdd4}\text{... I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. ~~also, why did i theme this off of Piddles..??? I don't even like her that much, I'm a Newbie fan.~~}$ <br>
+ㅤ $\color{#97cdd4}\text{... I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. ~~also, why did i theme this off of Piddles..??? I don't even like her that much, I'm a Newbie fan.~~ haha, pretend you cant read that.}$ <br>
   <br clear="left" />
 
 <p align="left">
@@ -54,6 +54,7 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 <p align="left">
   <img src="https://i.postimg.cc/kXSwzHVY/nomination-pj-div.png" alt="nomi div" width="500"> <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="140" alt="pj logo"><br>
 </p> 
+
 ㅤ $\color{#0098d2}\text{Here comes the fun part!}$
 
 ### ***POPULAR PEOPLE (195+ FOLLOWERS)***
@@ -85,9 +86,9 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> $\color{#0098d2}\text{is Pony Town's Squirrelflight (WARRIOR CATS) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Heart0fGold">Heart0fGold</a> $\color{#0098d2}\text{is Pony Town's Michel Ney (NAPOLEONIC WARS) and Karl (GUTS&BLACKPOWDER) !}$
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Heart0fGold">Heart0fGold</a> $\color{#0098d2}\text{is Pony Town's Michel Ney (NAPOLEONIC WARS) and Karl (GUTS AND BLACKPOWDER) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> $\color{#0098d2}\text{is Pony Town's Scared French Soldier (GUTS&BLACKPOWDER) and Jean Lannes (NAPOLEONIC WARS) !}$
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> $\color{#0098d2}\text{is Pony Town's Scared French Soldier (GUTS AND BLACKPOWDER) and Jean Lannes (NAPOLEONIC WARS) !}$
   
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/h6xoi">h6xoi</a> $\color{#0098d2}\text{is Pony Town's Mikado Kasuga (KASURICH) !}$
 
@@ -104,7 +105,7 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/yubelsrevenge">yubelsrevenge</a> $\color{#0098d2}\text{is Pony Town's Judai Yuki (YUGIOH GX) !}$
 
 ## SPECIAL CATEGORY <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="40" alt="pj logo"><br>
-  <img src="https://cdn.discordapp.com/emojis/1318346709662957589.jpg" width="20" alt="fat yoyo"> $\color{#0098d2}\text{YOYO'S BIGGEST HATER & PIDDLESJET'S PILOT =}$ <a href="https://github.com/screworangeslugs">screworangeslugs</a>
+  <img src="https://cdn.discordapp.com/emojis/1318346709662957589.jpg" width="20" alt="fat yoyo"> $\color{#0098d2}\text{YOYO'S BIGGEST HATER and PIDDLESJET'S PILOT =}$ <a href="https://github.com/screworangeslugs">screworangeslugs</a>
 
 <!--
 copy&paste im too lazy bleeeeh
