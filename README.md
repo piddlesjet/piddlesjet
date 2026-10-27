@@ -92,6 +92,8 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/screworangeslugs">screworangeslugs</a> is Pony Town's SideTrio (HOOPS&YOYO) !
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/THE-SAINT-OF-DEATH">THE-SAINT-OF-DEATH</a> is Pony Town's Roronoa Zoro (ONE PIECE) !
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/UNLEASH-NOLI">UNLEASH-NOLI</a> is Pony Town's NOLI (ROBLOX , ALL ITERATIONS) !
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/yubelsrevenge">yubelsrevenge</a> is Pony Town's Judai Yuki (YUGIOH GX) !
