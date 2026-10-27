@@ -53,9 +53,13 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 
 ### ***POPULAR PEOPLE (195+ FOLLOWERS)***
 
+   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> , <a href="https://github.com/ringodemon">ringodemon</a>
+
 
 ### ***ALWAYS ONLINE***
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/h6xoi">h6xoi</a>
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/h6xoi">h6xoi</a> , <a href="https://github.com/nocturnuII">nocturnuII</a>
+
 
 ### ***PRETTIEST SKINS***
 
@@ -78,10 +82,18 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/h6xoi">h6xoi</a> is Pony Town's Edward Elric (FULLMETAL ALCHEMIST) !
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> is Pony Town's Mikado Kasuga (KASURICH) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> is Pony Town's Grian (HERMITCRAFT) & Clancy (TWENTYONE PILOTS) !
+  
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> is Pony Town's Edward Elric (FULLMETAL ALCHEMIST) !
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/screworangeslugs">screworangeslugs</a> is Pony Town's SideTrio (HOOPS&YOYO) !
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/UNLEASH-NOLI">UNLEASH-NOLI</a> is Pony Town's NOLI (ROBLOX , ALL ITERATIONS) !
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/yubelsrevenge">yubelsrevenge</a> is Pony Town's Judai Yuki (YUGIOH GX) !
+
+<!--
+copy&paste im too lazy bleeeeh
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ghuser">ghuser</a> is Pony Town's char (source) !
+  <a href="https://github.com/ghuser">ghuser</a>
+-->
