@@ -24,21 +24,21 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
     </table>
 ㅤ<br>
 ㅤ<img src="https://i.postimg.cc/PqzQVMZz/piddles-jet-airlines-div.png" width="500" alt="pj airlines"><br>
-ㅤ Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is a fan-run community project and nomination hub. You may nominate ANYONE... Even yourself!<img src="https://i.postimg.cc/2yJVdTdX/ezgif-com-gif-maker-(2).gif" width="30" alt="j"> ... I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. ~~also, why did i theme this off of Piddles..??? I don't even like her that much, I'm a Newbie fan.~~ <br>
+ㅤ $\color{#0098d2}\text{Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is a fan-run community project and nomination hub. You may nominate ANYONE... Even yourself!}$<img src="https://i.postimg.cc/2yJVdTdX/ezgif-com-gif-maker-(2).gif" width="30" alt="j"> $\color{#97cdd4}\text{... I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. ~~also, why did i theme this off of Piddles..??? I don't even like her that much, I'm a Newbie fan.~~}$ <br>
   <br clear="left" />
 
 <p align="left">
   <img src="https://i.postimg.cc/mktZhBs4/piddles-jet-onboard-rules-div.png" alt="onb div" width="500"><br>
 </p> 
-ㅤ 1. Only ONE person can nominate a character! Once a character is claimed, you cannot claim the character of that source. 
+ㅤ $\color{#97cdd4}\text{1.}$ $\color{#0098d2}\text{Only ONE person can nominate a character! Once a character is claimed, you cannot claim the character of that source.}$
 
-ㅤ 2. You can be nominated onto multiple categories!
+ㅤ $\color{#97cdd4}\text{2.}$ $\color{#0098d2}\text{You can be nominated onto multiple categories!}$
 
-ㅤ 3. First come, first serve! 
+ㅤ $\color{#97cdd4}\text{3.}$ $\color{#0098d2}\text{First come, first serve!}$
 
-ㅤ 4. Don't be upset when your character ends up being claimed. Just claim another one! Don't make a scene out of it! 
+ㅤ $\color{#97cdd4}\text{4.}$ $\color{#0098d2}\text{Don't be upset when your character ends up being claimed. Just claim another one! Don't make a scene out of it!}$
 
-ㅤ 5. Basic rules, you know the drill.
+ㅤ $\color{#97cdd4}\text{5.}$ $\color{#0098d2}\text{Basic rules, you know the drill.}$
 </p>
 </p>
 
@@ -49,7 +49,7 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 <p align="left">
   <img src="https://i.postimg.cc/kXSwzHVY/nomination-pj-div.png" alt="nomi div" width="500"> <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="140" alt="pj logo"><br>
 </p> 
-ㅤ Here comes the fun part!
+ㅤ $\color{#0098d2}\text{Here comes the fun part!}$
 
 ### ***POPULAR PEOPLE (195+ FOLLOWERS)***
 
@@ -72,34 +72,34 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 
 ### ***CHARACTER NOMINATIONS***
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/77crescentmoon">77crescentmoon</a> is Pony Town's Edward ParrotX2 (UNSTABLE SMP) & Kyle (SOUTH PARK) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/77crescentmoon">77crescentmoon</a> $\color{#0098d2}\text{is Pony Town's Edward ParrotX2 (UNSTABLE SMP) & Kyle (SOUTH PARK) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Chemicalshot">Chemicalshot</a> is Pony Town's Wemmbu (MCYT) and Yourmind (WONDERLAND.JAR) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Chemicalshot">Chemicalshot</a> $\color{#0098d2}\text{is Pony Town's Wemmbu (MCYT) and Yourmind (WONDERLAND.JAR) !}$
  
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/dead-blooming-roses">dead-blooming-roses</a> is Pony Town's GhostFace (SCREAM) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/dead-blooming-roses">dead-blooming-roses</a> $\color{#0098d2}\text{is Pony Town's GhostFace (SCREAM) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> is Pony Town's Squirrelflight (WARRIOR CATS) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> $\color{#0098d2}\text{is Pony Town's Squirrelflight (WARRIOR CATS) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Heart0fGold">Heart0fGold</a> is Pony Town's Michel Ney (NAPOLEONIC WARS) & Karl (GUTS&BLACKPOWDER) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Heart0fGold">Heart0fGold</a> $\color{#0098d2}\text{is Pony Town's Michel Ney (NAPOLEONIC WARS) & Karl (GUTS&BLACKPOWDER) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> is Pony Town's Scared French Soldier (GUTS&BLACKPOWDER) & Jean Lannes (NAPOLEONIC WARS) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> $\color{#0098d2}\text{is Pony Town's Scared French Soldier (GUTS&BLACKPOWDER) & Jean Lannes (NAPOLEONIC WARS) !}$
   
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/h6xoi">h6xoi</a> is Pony Town's Mikado Kasuga (KASURICH) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/h6xoi">h6xoi</a> $\color{#0098d2}\text{is Pony Town's Mikado Kasuga (KASURICH) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> is Pony Town's Grian (HERMITCRAFT) & Clancy (TWENTYONE PILOTS) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> $\color{#0098d2}\text{is Pony Town's Grian (HERMITCRAFT) & Clancy (TWENTYONE PILOTS) !}$
   
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> is Pony Town's Edward Elric (FULLMETAL ALCHEMIST) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> $\color{#0098d2}\text{is Pony Town's Edward Elric (FULLMETAL ALCHEMIST) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/screworangeslugs">screworangeslugs</a> is Pony Town's SideTrio (HOOPS&YOYO) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/screworangeslugs">screworangeslugs</a> $\color{#0098d2}\text{is Pony Town's SideTrio (HOOPS&YOYO) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/THE-SAINT-OF-DEATH">THE-SAINT-OF-DEATH</a> is Pony Town's Roronoa Zoro (ONE PIECE) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/THE-SAINT-OF-DEATH">THE-SAINT-OF-DEATH</a> $\color{#0098d2}\text{is Pony Town's Roronoa Zoro (ONE PIECE) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/UNLEASH-NOLI">UNLEASH-NOLI</a> is Pony Town's NOLI (ROBLOX , ALL ITERATIONS) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/UNLEASH-NOLI">UNLEASH-NOLI</a> $\color{#0098d2}\text{is Pony Town's NOLI (ROBLOX , ALL ITERATIONS) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/yubelsrevenge">yubelsrevenge</a> is Pony Town's Judai Yuki (YUGIOH GX) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/yubelsrevenge">yubelsrevenge</a> $\color{#0098d2}\text{is Pony Town's Judai Yuki (YUGIOH GX) !}$
 
 ## SPECIAL CATEGORY <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="40" alt="pj logo"><br>
-  <img src="https://cdn.discordapp.com/emojis/1318346709662957589.jpg" width="20" alt="fat yoyo"> YOYO'S BIGGEST HATER & PIDDLESJET'S PILOT = <a href="https://github.com/screworangeslugs">screworangeslugs</a>
+  <img src="https://cdn.discordapp.com/emojis/1318346709662957589.jpg" width="20" alt="fat yoyo"> $\color{#0098d2}\text{YOYO'S BIGGEST HATER & PIDDLESJET'S PILOT =}$ <a href="https://github.com/screworangeslugs">screworangeslugs</a>
 
 <!--
 copy&paste im too lazy bleeeeh
