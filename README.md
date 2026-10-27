@@ -62,7 +62,7 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 
 
 ### ***PRETTIEST SKINS***
-
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> , <a href="https://github.com/screworangeslugs">screworangeslugs</a>
 
 ### ***PRETTIEST LAYOUTS***
 
@@ -80,7 +80,11 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> is Pony Town's Squirrelflight (WARRIOR CATS) !
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/h6xoi">h6xoi</a> is Pony Town's Edward Elric (FULLMETAL ALCHEMIST) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Heart0fGold">Heart0fGold</a> is Pony Town's Michel Ney (NAPOLEONIC WARS) & Karl (GUTS&BLACKPOWDER) !
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> is Pony Town's Scared French Soldier (GUTS&BLACKPOWDER) & Jean Lannes (NAPOLEONIC WARS) !
+  
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/h6xoi">h6xoi</a> is Pony Town's Mikado Kasuga (KASURICH) !
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> is Pony Town's Grian (HERMITCRAFT) & Clancy (TWENTYONE PILOTS) !
   
