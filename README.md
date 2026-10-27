@@ -1,10 +1,10 @@
 <!--
-Hello there, passenger! i bet you didnt expect to see the captain himself greeting you here, huh? wel... its not something that happens  to everyone! if you are seeing this text, then that means you are forking the P.J repo. dont worry, the cap wont be punishing you...
-Just know, you are permitted to use the code here... Just dont use the images! theyre P.J property only.
-
-layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
+hey what are u doing here im busy
 -->
 
+# reformatting this so this is on pause for now ok. adding everyone back later
+
+<!--
 <p align="center">
   <img src="https://i.postimg.cc/Cx23LSQh/image.png" alt="lut sky" width="1060">
 </p> 
@@ -107,7 +107,6 @@ layout hib @THE-TEMPIST bruh i thought i already put the credits here somewhere
 ## SPECIAL CATEGORY <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="40" alt="pj logo"><br>
   <img src="https://cdn.discordapp.com/emojis/1318346709662957589.jpg" width="20" alt="fat yoyo"> $\color{#0098d2}\text{YOYO'S BIGGEST HATER and PIDDLESJET'S PILOT =}$ <a href="https://github.com/screworangeslugs">screworangeslugs</a>
 
-<!--
 copy&paste im too lazy bleeeeh
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ghuser">ghuser</a> is Pony Town's char (source) !
   <a href="https://github.com/ghuser">ghuser</a>
