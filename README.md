@@ -1,5 +1,5 @@
 <!--
-hey what are u doing here im busy
+hey what are u doing here. hey. get out now. hey. throws shoes at you.
 -->
 
 <p align="center">
@@ -10,48 +10,52 @@ hey what are u doing here im busy
   <img src="https://i.postimg.cc/pXzHVCm4/piddles-jet-airlines-div.png" alt="pjairlines" width="700">
 </p> 
 
-<img align="left">
-  <img src="https://i.postimg.cc/LX9dxFv6/piddlesjet-computer-2.png" alt="piddlesjet computer" width="300">
-
-i like men
-
-<!-- 
-ㅤ<table border="7" align="right">
-    <tr align="center"></tr>
-      <th>
-        ㅤ<br>
-        <img src="https://komarev.com/ghpvc/?username=piddlesjet&color=97cdd4&style=plastic&abbreviated=true&label=/PIDDLES.JET"><br>
-        ㅤ<br>
-        <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="140" alt="pj logo"><br>
-        ㅤ<br>
-        ㅤ[<img src="https://i.postimg.cc/4NW03sSJ/nomination-pj.png" width="160" alt="nomi note">](https://piddlesjet.atabook.org/)ㅤ<br>
-        ㅤ[<img src="https://i.postimg.cc/PqYK1j2z/report-pj.png" width="160" alt="rep note">](https://piddlesjet.straw.page/)ㅤ<br>
-        ㅤ<br>
-      </th>
-    </table>
-ㅤ<br>
-ㅤ<img src="https://i.postimg.cc/PqzQVMZz/piddles-jet-airlines-div.png" width="500" alt="pj airlines"><br>
-ㅤ 
-ㅤ $\color{#0098d2}\text{Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is a fan-run community project and nomination hub. You may nominate ANYONE... Even yourself!}$<img src="https://i.postimg.cc/2yJVdTdX/ezgif-com-gif-maker-(2).gif" width="30" alt="j"><br> 
-
-ㅤ $\color{#97cdd4}\text{... I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. ~~also, why did i theme this off of Piddles..??? I don't even like her that much, I'm a Newbie fan.~~ haha, pretend you cant read that.}$ <br>
-  <br clear="left" />
-
-<p align="left">
-  <img src="https://i.postimg.cc/mktZhBs4/piddles-jet-onboard-rules-div.png" alt="onb div" width="500"><br>
+<p align="right">
+  <img src="https://komarev.com/ghpvc/?username=piddlesjet&color=97cdd4&style=plastic&abbreviated=true&label=/PIDDLES.JET" alt="pj views" width="100">  
 </p> 
 
-ㅤ $\color{#97cdd4}\text{1.}$ $\color{#0098d2}\text{Only ONE person can nominate a character! Once a character is claimed, you cannot claim the character of that source.}$
-
-ㅤ $\color{#97cdd4}\text{2.}$ $\color{#0098d2}\text{You can be nominated onto multiple categories!}$
-
-ㅤ $\color{#97cdd4}\text{3.}$ $\color{#0098d2}\text{First come, first serve!}$
-
-ㅤ $\color{#97cdd4}\text{4.}$ $\color{#0098d2}\text{Don't be upset when your character ends up being claimed. Just claim another one! Don't make a scene out of it!}$
-
-ㅤ $\color{#97cdd4}\text{5.}$ $\color{#0098d2}\text{Basic rules, you know the drill.}$
-
+<p>
+  <img align="right" width="400" src="https://i.postimg.cc/LX9dxFv6/piddlesjet-computer-2.png">
 </p>
+
+<p align="left">
+  <img src="https://i.postimg.cc/ZRLhF5S5/home-pj.png" alt="pj home" width="200"> 
+</p> 
+
+Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is a fan-run community project and nomination hub. we have an alphabetical directory mapping specific users to the characters they are widely recognized for cosplaying or characters they just generally like. We are only doing this for the purpose of entertainment and to make *everyone* feel included! You may nominate ANYONE... Even yourself! <img src="https://i.postimg.cc/2yJVdTdX/ezgif-com-gif-maker-(2).gif" width="30" alt="j">
+
+... I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. to your right, you can see our *little* mascot, Piddlesjet! She's a *little* critter-jet, almost identical to her canon counterpart - if you ignore the fact she's a hundred times bigger now! ~~don't ask how Piddles became a jet... You'll call CPS (Critter Protective Services) on us!~~
+<br clear="right" />
+
+<p>
+  <a href="https://piddlesjet.atabook.org/"><img align="left" width="300" src="https://i.postimg.cc/FRXLkDrt/flight-attendant-hoops.png">
+</p></a>
+
+<p align="left">
+  <img src="https://i.postimg.cc/VL9mzgT7/nomination-pj.png" alt="pj nomi note" width="200"> 
+</p> 
+
+Feeling intrigued yet? Well, you'll need to hold on to your horses for a bit. You'll need to follow a set of rules! Don't worry; they're not too complicated to follow. READ IT! (scroll down)... Did you read it? that's great! Now, once you're ready, hand your nomination ticket over to Hoops. He's on your left! (click him)
+
+If you have anything to ask, ask away IN the atabook! However, if we happen to add someone problematic, please provide proof in <a href="https://https://piddlesjet.straw.page/">our strawpage</a>. False/unserious reports are forbidden and will be ignored
+<br clear="left" />
+
+<p align="left">
+  <img src="https://i.postimg.cc/mktZhBs4/piddles-jet-onboard-rules-div.png" alt="onb div" width="500">
+</p> 
+
+ㅤ 1. Only ONE person can nominate a character! Once a character is claimed, you cannot claim the character of that source.
+
+ㅤ 2.You can be nominated onto multiple categories!
+
+ㅤ 3. First come, first serve!
+
+ㅤ 4. Don't be upset when your character ends up being claimed. Just claim another one! Don't make a scene out of it!
+
+ㅤ 5. Please be specific when nominating something. Include the GitHub user, character name, source and category! none of those = ignored
+
+ㅤ 6. Basic rules, you know the drill! 
+
 </p>
 
 <p align="left">
@@ -81,7 +85,7 @@ i like men
 
 
 ### ***CUDDLE BUGS***
-
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/deadbridewalking">deadbridewalking</a>
 
 ### ***CHARACTER NOMINATIONS***
 
@@ -99,6 +103,8 @@ i like men
   
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/h6xoi">h6xoi</a> $\color{#0098d2}\text{is Pony Town's Mikado Kasuga (KASURICH) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/larpchan">larpchan</a> is Pony Town's SpokeIsHere (UU) !
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> $\color{#0098d2}\text{is Pony Town's Grian (HERMITCRAFT) and Clancy (TWENTYONE PILOTS) !}$
   
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> $\color{#0098d2}\text{is Pony Town's Edward Elric (FULLMETAL ALCHEMIST) !}$
@@ -114,6 +120,7 @@ i like men
 ## SPECIAL CATEGORY <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="40" alt="pj logo"><br>
   <img src="https://cdn.discordapp.com/emojis/1318346709662957589.jpg" width="20" alt="fat yoyo"> $\color{#0098d2}\text{YOYO'S BIGGEST HATER and PIDDLESJET'S PILOT =}$ <a href="https://github.com/screworangeslugs">screworangeslugs</a>
 
+<!--
 copy&paste im too lazy bleeeeh
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ghuser">ghuser</a> is Pony Town's char (source) !
   <a href="https://github.com/ghuser">ghuser</a>
