@@ -1,5 +1,6 @@
 <!--
 hey what are u doing here. hey. get out now. hey. throws shoes at you.
+inspiration is fine, though if you take heavy inspo put visible credits ok ;0) -pilot
 -->
 
 <p align="center">
@@ -93,7 +94,11 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/A-Crescent-Shadow">A-Crescent-Shadow</a> $\color{#0098d2}\text{is Pony Town's Story Shift Chara (UNDERTALE AU) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Aspenolia">Aspenolia</a> $\color{#0098d2}\text{is Pony Town's Azure Wrath (FORSAKEN , ROBLOX) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/bxlletsandbats">bxlletsandbats</a> $\color{#0098d2}\text{is Pony Town's Party Poison (DANGER DAYS) and Two Time (FORSAKEN) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/biteofme">biteofme</a> $\color{#0098d2}\text{is Pony Town's Vox (HAZBIN HOTEL) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Chemicalshot">Chemicalshot</a> $\color{#0098d2}\text{is Pony Town's Wemmbu (MCYT) and Yourmind (WONDERLAND.JAR) !}$
 
