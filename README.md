@@ -66,7 +66,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
   <img src="https://i.postimg.cc/kXSwzHVY/nomination-pj-div.png" alt="nomi div" width="500"> <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="140" alt="pj logo"><br>
 </p> 
 
-ㅤ $\color{#0098d2}\text{Here comes the fun part!}$
+ㅤ Here comes the fun part!
 
 ### ***POPULAR PEOPLE (195+ FOLLOWERS)***
 
