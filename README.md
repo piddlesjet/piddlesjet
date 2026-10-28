@@ -37,7 +37,7 @@ Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our
 
 Feeling intrigued yet? Well, you'll need to hold on to your horses for a bit. You'll need to follow a set of rules! Don't worry; they're not too complicated to follow. READ IT! (scroll down)... Did you read it? that's great! Now, once you're ready, hand your nomination ticket over to Hoops. He's on your left! (click him)
 
-If you have anything to ask, ask away IN the atabook! However, if we happen to add someone problematic, please provide proof in <a href="https://https://piddlesjet.straw.page">our strawpage</a>. False/unserious reports are forbidden and will be ignored
+If you have anything to ask, ask away IN the atabook! However, if we happen to add someone problematic, please provide proof in <a href="https://piddlesjet.straw.page/">our strawpage</a>. False/unserious reports are forbidden and will be ignored
 <br clear="left" />
 
 <p align="left">
