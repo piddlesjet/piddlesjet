@@ -120,6 +120,8 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/larpchan">larpchan</a> $\color{#0098d2}\text{is Pony Town's SpokeIsHere (UU) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/mydearmeIancholy">mydearmeIancholy</a> $\color{#0098d2}\text{is Pony Town's Power (CHAINSAW MAN) and Rebecca (CYBERPUNK EDGERUNNERS) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> $\color{#0098d2}\text{is Pony Town's Grian (HERMITCRAFT) and Clancy (TWENTYONE PILOTS) !}$
   
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> $\color{#0098d2}\text{is Pony Town's Edward Elric (FULLMETAL ALCHEMIST) !}$
