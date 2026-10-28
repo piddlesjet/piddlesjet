@@ -2,13 +2,20 @@
 hey what are u doing here im busy
 -->
 
-# reformatting this so this is on pause for now ok. adding everyone back later
-
-<!--
 <p align="center">
   <img src="https://i.postimg.cc/Cx23LSQh/image.png" alt="lut sky" width="1060">
 </p> 
 
+<p align="center">
+  <img src="https://i.postimg.cc/pXzHVCm4/piddles-jet-airlines-div.png" alt="pjairlines" width="700">
+</p> 
+
+<img align="left">
+  <img src="https://i.postimg.cc/LX9dxFv6/piddlesjet-computer-2.png" alt="piddlesjet computer" width="300">
+
+i like men
+
+<!-- 
 ㅤ<table border="7" align="right">
     <tr align="center"></tr>
       <th>
