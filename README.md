@@ -85,7 +85,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
 
 ### ***CUDDLE BUGS***
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/deadbridewalking">deadbridewalking</a> a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a>
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/deadbridewalking">deadbridewalking</a> <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a>
 
 ### ***CHARACTER NOMINATIONS***
 
