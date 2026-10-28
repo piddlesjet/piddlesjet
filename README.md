@@ -137,6 +137,8 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/yunilaili">yunilaili</a> $\color{#0098d2}\text{is Pony Town's Xeladrag (VOID CULT , ROBLOX) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Yoshida-zawa">Yoshida-zawa</a> $\color{#0098d2}\text{is Pony Town's DAFFODALLY (DOODLE WORLD , ROBLOX) !}$
+
 ## SPECIAL CATEGORY <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="40" alt="pj logo"><br>
   <img src="https://cdn.discordapp.com/emojis/1318346709662957589.jpg" width="20" alt="fat yoyo"> $\color{#0098d2}\text{YOYO'S BIGGEST HATER and PIDDLESJET'S PILOT =}$ <a href="https://github.com/screworangeslugs">screworangeslugs</a>
 
