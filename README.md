@@ -103,7 +103,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
   
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/h6xoi">h6xoi</a> $\color{#0098d2}\text{is Pony Town's Mikado Kasuga (KASURICH) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/larpchan">larpchan</a> is Pony Town's SpokeIsHere (UU) !
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/larpchan">larpchan</a> $\color{#0098d2}\text{is Pony Town's SpokeIsHere (UU) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> $\color{#0098d2}\text{is Pony Town's Grian (HERMITCRAFT) and Clancy (TWENTYONE PILOTS) !}$
   
