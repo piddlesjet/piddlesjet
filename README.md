@@ -70,7 +70,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
 ### ***POPULAR PEOPLE (195+ FOLLOWERS)***
 
-   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> , <a href="https://github.com/ringodemon">ringodemon</a> , a href="https://github.com/8-baII">8-baII</a>
+   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> , <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/8-baII">8-baII</a>
 
 
 ### ***ALWAYS ONLINE***
@@ -85,7 +85,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
 
 ### ***CUDDLE BUGS***
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/deadbridewalking">deadbridewalking</a> <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a>
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/deadbridewalking">deadbridewalking</a> , <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a>
 
 ### ***CHARACTER NOMINATIONS***
 
