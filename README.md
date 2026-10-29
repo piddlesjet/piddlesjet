@@ -102,7 +102,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Aspenolia">Aspenolia</a> $\color{#0098d2}\text{is Pony Town's Azure Wrath (FORSAKEN , ROBLOX) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/angoraoverdrive">angoraoverdrive</a> $\color{#0098d2}\text{is Pony Town's Ashbury Heights (BAND) & Admin Romeo (MINECRAFT: STORYMODE) !}$
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/angoraoverdrive">angoraoverdrive</a> $\color{#0098d2}\text{is Pony Town's Ashbury Heights (BAND) and Admin Romeo (MINECRAFT: STORYMODE) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/AutopsiedGore">AutopsiedGore</a> $\color{#0098d2}\text{is Pony Town's Douma (DEMON SLAYER) !}$
 
