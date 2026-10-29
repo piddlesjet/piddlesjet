@@ -134,7 +134,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/eversleeping-town">eversleeping-town</a> $\color{#0098d2}\text{is Pony Town's Ada Wong (RESIDENT EVIL) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/evbomc">evbomc</a> $\color{#0098d2}\text{is Pony Town's Evbo_ (PVP CIV/PARKOUR CIV) !}$
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/evbomc">evbomc</a> $\color{#0098d2}\text{is Pony Town's Evbo- (PVP CIV/PARKOUR CIV) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/fou11egacy">fou11egacy</a> $\color{#0098d2}\text{is Pony Town's Tartaglia/Childe (GENSHIN IMPACT) !}$
 
