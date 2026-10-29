@@ -200,7 +200,11 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/TheMisfortunate">TheMisfortunate</a> $\color{#0098d2}\text{is Pony Town's Survivor (RAIN WORLD) and Rue (ONESHOT) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/thirdlotusprince">thirdlotusprince</a> $\color{#0098d2}\text{is Pony Town's Nezha (LEGO MONKIE KID) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/UNLEASH-NOLI">UNLEASH-NOLI</a> $\color{#0098d2}\text{is Pony Town's NOLI (ROBLOX , ALL ITERATIONS) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/VArtfultrust">VArtfultrust</a> $\color{#0098d2}\text{is Pony Town's Eggchan (UNSTABLE SMP) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/WhenTheSUNdreams">WhenTheSUNdreams</a> $\color{#0098d2}\text{is Pony Town's Gebura/Kali (PROJECT MOON) !}$
 
