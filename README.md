@@ -25,7 +25,7 @@ inspiration is fine, though if you take heavy inspo put visible credits ok ;0) -
 
 Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is a fan-run community project and nomination hub. we have an alphabetical directory mapping specific users to the characters they are widely recognized for cosplaying or characters they just generally like. We are only doing this for the purpose of entertainment and to make *everyone* feel included! You may nominate ANYONE... Even yourself! <img src="https://i.postimg.cc/2yJVdTdX/ezgif-com-gif-maker-(2).gif" width="30" alt="j">
 
-... I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. to your right, you can see our *little* mascot, Piddlesjet! She's a *little* critter-jet, almost identical to her canon counterpart - if you ignore the fact she's a hundred times bigger now! ~~don't ask how Piddles became a jet... You'll call CPS (Critter Protective Services) on us!~~
+... I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. to your upper right, you can see our *little* mascot, Piddlesjet! She's a *little* critter-jet, almost identical to her canon counterpart - if you ignore the fact she's a hundred times bigger now! ~~don't ask how Piddles became a jet... You'll call CPS (Critter Protective Services) on us!~~
 <br clear="right" />
 
 <p>
