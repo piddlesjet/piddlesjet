@@ -281,7 +281,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Subspace T. Mine Yumeshipper = <a href="https://github.com/subspace-kisser">subspace-kisser</a> 
 
-  <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Aaron Bur = <a href="https://github.com/god-of-stories">god-of-stories</a> 
+  <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Aaron Bur Yumeshipper = <a href="https://github.com/god-of-stories">god-of-stories</a> 
 
 <!--
 copy&paste im too lazy bleeeeh
