@@ -138,7 +138,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/DocHale">DocHale</a> $\color{#0098d2}\text{is Pony Town's Liwen (THE WAY OF LEAR) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/denguemon">denguemon</a> $\color{#0098d2}\text{is Pony Town's Shin Joong Hyun (MIIN 1975) & Akira Nishikiyama (YAKUZA SERIES) !}$
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/denguemon">denguemon</a> $\color{#0098d2}\text{is Pony Town's Shin Joong Hyun (MIIN 1975) and Akira Nishikiyama (YAKUZA SERIES) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/eversleeping-town">eversleeping-town</a> $\color{#0098d2}\text{is Pony Town's Ada Wong (RESIDENT EVIL) !}$
 
