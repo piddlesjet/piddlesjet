@@ -71,28 +71,34 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
 ### ***POPULAR PEOPLE (195+ FOLLOWERS)***
 
-   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> , <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/8-baII">8-baII</a>
+   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> , <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/8-baII">8-baII</a> ,   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/RingmasterAI">RingmasterAI</a> 
 
 
 ### ***ALWAYS ONLINE***
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/h6xoi">h6xoi</a> , <a href="https://github.com/nocturnuII">nocturnuII</a>
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/h6xoi">h6xoi</a> , <a href="https://github.com/nocturnuII">nocturnuII</a> , <a href="https://github.com/RingmasterAI">RingmasterAI</a> , <a href="https://github.com/BetrayedNotes">BetrayedNotes</a> , <a href="https://github.com/Cookiecatsoyummy">Cookiecatsoyummy</a> 
 
 
 ### ***PRETTIEST SKINS***
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> , <a href="https://github.com/screworangeslugs">screworangeslugs</a>
-
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> , <a href="https://github.com/screworangeslugs">screworangeslugs</a> ,   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/l0veis4ika">l0veis4ika</a> 
+  
 ### ***PRETTIEST LAYOUTS***
-
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/l0veis4ika">l0veis4ika</a> 
 
 ### ***CUDDLE BUGS***
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/deadbridewalking">deadbridewalking</a> , <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a>
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/deadbridewalking">deadbridewalking</a> , <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a> , <a href="https://github.com/Flayedrocker">Flayedrocker</a> 
 
 ### ***CHARACTER NOMINATIONS***
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/2099s">2099s</a> $\color{#0098d2}\text{is Pony Town's Miguel O'Hara (ACROSS THE SPIDERVERSE) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/5orrows">5orrows</a> $\color{#0098d2}\text{is Pony Town's Ichigo Kurosaki (BLEACH) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/77crescentmoon">77crescentmoon</a> $\color{#0098d2}\text{is Pony Town's Edward ParrotX2 (UNSTABLE SMP) and Kyle (SOUTH PARK) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/A-Crescent-Shadow">A-Crescent-Shadow</a> $\color{#0098d2}\text{is Pony Town's Story Shift Chara (UNDERTALE AU) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Abaddon-Freeling">Abaddon-Freeling</a> $\color{#0098d2}\text{is Pony Town's Abaddon (HAUNTED HOTEL) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Aspenolia">Aspenolia</a> $\color{#0098d2}\text{is Pony Town's Azure Wrath (FORSAKEN , ROBLOX) !}$
 
@@ -100,13 +106,31 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/biteofme">biteofme</a> $\color{#0098d2}\text{is Pony Town's Vox (HAZBIN HOTEL) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/BetrayedNotes">BetrayedNotes</a> $\color{#0098d2}\text{is Pony Town's Betrayed 1x1x1x1 (FORSAKEN , ROBLOX) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Blame-John">Blame-John</a> $\color{#0098d2}\text{is Pony Town's John Shedletsky (ROBLOX) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Chemicalshot">Chemicalshot</a> $\color{#0098d2}\text{is Pony Town's Wemmbu (MCYT) and Yourmind (WONDERLAND.JAR) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/craig-tucker">craig-tucker</a> $\color{#0098d2}\text{is Pony Town's Craig Tucker (SOUTH PARK) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Cookiecatsoyummy">Cookiecatsoyummy</a> $\color{#0098d2}\text{is Pony Town's Ibuki mioda (DANGANRONPA GOODBYE DESPAIR) !}$
  
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/dead-blooming-roses">dead-blooming-roses</a> $\color{#0098d2}\text{is Pony Town's GhostFace (SCREAM) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> $\color{#0098d2}\text{is Pony Town's Squirrelflight (WARRIOR CATS) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/datingdetergent">datingdetergent</a> $\color{#0098d2}\text{is Pony Town's Tydus Andromache (DATE EVERYTHING!) and Vendetta (OVERWATCH) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/DocHale">DocHale</a> $\color{#0098d2}\text{is Pony Town's Liwen (THE WAY OF LEAR) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/eversleeping-town">eversleeping-town</a> $\color{#0098d2}\text{is Pony Town's Ada Wong (RESIDENT EVIL) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/fou11egacy">fou11egacy</a> $\color{#0098d2}\text{is Pony Town's Tartaglia/Childe (GENSHIN IMPACT) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Flayedrocker">Flayedrocker</a> $\color{#0098d2}\text{is Pony Town's Karl Heisenberg (RESIDENT EVIL) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/goovons">goovons</a> $\color{#0098d2}\text{is Pony Town's Luffy (ONE PIECE) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Heart0fGold">Heart0fGold</a> $\color{#0098d2}\text{is Pony Town's Michel Ney (NAPOLEONIC WARS) and Karl (GUTS AND BLACKPOWDER) !}$
 
@@ -118,9 +142,13 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/itrap-2245">itrap-2245</a> $\color{#0098d2}\text{is Pony Town's iTrapped (MM12) and Furina (GENSHIN) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/kacchanofthebakugos">kacchanofthebakugos</a> $\color{#0098d2}\text{is Pony Town's Katsuki Bakugo (MHA) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/larpchan">larpchan</a> $\color{#0098d2}\text{is Pony Town's SpokeIsHere (UU) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/mydearmeIancholy">mydearmeIancholy</a> $\color{#0098d2}\text{is Pony Town's Power (CHAINSAW MAN) and Rebecca (CYBERPUNK EDGERUNNERS) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Maapicc">Maapicc</a> $\color{#0098d2}\text{is Pony Town's Mapicc (UU) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> $\color{#0098d2}\text{is Pony Town's Grian (HERMITCRAFT) and Clancy (TWENTYONE PILOTS) !}$
   
@@ -132,15 +160,25 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Supreme-Angel">Supreme-Angel</a> $\color{#0098d2}\text{is Pony Town's Gabriel and Minos prime (ULTRAKILLS) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/sanguinesilence">sanguinesilence</a> $\color{#0098d2}\text{is Pony Town's Blot (DANDY'S WORLD) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Senjurochistic">Senjurochistic</a> $\color{#0098d2}\text{is Pony Town's Senjuro Rengoku (DEMON SLAYER) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/THE-SAINT-OF-DEATH">THE-SAINT-OF-DEATH</a> $\color{#0098d2}\text{is Pony Town's Roronoa Zoro (ONE PIECE) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/thedarklrd">thedarklrd</a> $\color{#0098d2}\text{is Pony Town's Charlie (ERSATZ) !}$
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/T0R4X">T0R4X</a> $\color{#0098d2}\text{is Pony Town's Medic (TEAM FORTRESS 2) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/twottimey">twottimey</a> $\color{#0098d2}\text{is Pony Town's Two Time (FORSAKEN , ROBLOX) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/TheMisfortunate">TheMisfortunate</a> $\color{#0098d2}\text{is Pony Town's Survivor (RAIN WORLD) and Rue (ONESHOT) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/UNLEASH-NOLI">UNLEASH-NOLI</a> $\color{#0098d2}\text{is Pony Town's NOLI (ROBLOX , ALL ITERATIONS) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/WhenTheSUNdreams">WhenTheSUNdreams</a> $\color{#0098d2}\text{is Pony Town's Gebura/Kali (PROJECT MOON) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/yubelsrevenge">yubelsrevenge</a> $\color{#0098d2}\text{is Pony Town's Judai Yuki (YUGIOH GX) !}$
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/wifiesh">wifiesh</a> $\color{#0098d2}\text{is Pony Town's Vox (HAZBIN HOTEL) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/yubelsrevenge">yubelsrevenge</a> $\color{#0098d2}\text{is Pony Town's Wifies (UUSMP) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/yunilaili">yunilaili</a> $\color{#0098d2}\text{is Pony Town's Xeladrag (VOID CULT , ROBLOX) !}$
 
