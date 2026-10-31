@@ -80,10 +80,10 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
 
 ### ***PRETTIEST SKINS***
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> , <a href="https://github.com/screworangeslugs">screworangeslugs</a> , <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/l0veis4ika">l0veis4ika</a> ,   <a href="https://github.com/fufuyio1206">fufuyio1206</a> , <a href="https://github.com/yvoisen">yvoisen</a> , <a href="https://github.com/faelightgex">faelightgex</a> , <a href="https://github.com/lesereine">lesereine</a> , <a href="https://github.com/ibeatangels">ibeatangels</a> , <a href="https://github.com/parameowia">parameowia</a> , <a href="https://github.com/pupfies">pupfies</a> , <a href="https://github.com/MrNovalite">MrNovalite</a>
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> , <a href="https://github.com/haIImarkcards">haIImarkcards</a> , <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/l0veis4ika">l0veis4ika</a> ,   <a href="https://github.com/fufuyio1206">fufuyio1206</a> , <a href="https://github.com/yvoisen">yvoisen</a> , <a href="https://github.com/faelightgex">faelightgex</a> , <a href="https://github.com/lesereine">lesereine</a> , <a href="https://github.com/ibeatangels">ibeatangels</a> , <a href="https://github.com/parameowia">parameowia</a> , <a href="https://github.com/pupfies">pupfies</a> , <a href="https://github.com/MrNovalite">MrNovalite</a>
   
 ### ***PRETTIEST LAYOUTS***
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/l0veis4ika">l0veis4ika</a> ,   <a href="https://github.com/yvoisen">yvoisen</a> ,   <a href="https://github.com/shurilong">shurilong</a> , <a href="https://github.com/screworangeslugs">screworangeslugs</a>
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/l0veis4ika">l0veis4ika</a> ,   <a href="https://github.com/yvoisen">yvoisen</a> ,   <a href="https://github.com/shurilong">shurilong</a> , <a href="https://github.com/haIImarkcards">haIImarkcards</a>
 
 ### ***CUDDLE BUGS***
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/deadbridewalking">deadbridewalking</a> , <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a> , <a href="https://github.com/Flayedrocker">Flayedrocker</a> ,   <a href="https://github.com/z0mbiepup">z0mbiepup</a> , <a href="https://github.com/SEONSQUID">SEONSQUID</a> , <a href="https://github.com/livingforest">livingforest</a>
@@ -176,6 +176,8 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/garferss">garferss</a> $\color{#0098d2}\text{is Pony Town's Ashwag (MCYT) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/haIImarkcards">haIImarkcards</a> $\color{#0098d2}\text{is Pony Town's SideTrio (HOOPS AND YOYO) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Heart0fGold">Heart0fGold</a> $\color{#0098d2}\text{is Pony Town's Michel Ney (NAPOLEONIC WARS) and Karl (GUTS AND BLACKPOWDER) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> $\color{#0098d2}\text{is Pony Town's Scared French Soldier (GUTS AND BLACKPOWDER) and Jean Lannes (NAPOLEONIC WARS) !}$
@@ -259,8 +261,6 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/re0-mikage">re0-mikage</a> $\color{#0098d2}\text{is Pony Town's Reo Mikage (BLUE LOCK) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/rydenyuri">rydenyuri</a> $\color{#0098d2}\text{is Pony Town's Ryan Ross (PANIC AT THE DISCO) !}$
-
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/screworangeslugs">screworangeslugs</a> $\color{#0098d2}\text{is Pony Town's SideTrio (HOOPS AND YOYO) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a> $\color{#0098d2}\text{is Pony Town's BMO (ADVENTURE TIME) !}$
 
