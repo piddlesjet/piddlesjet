@@ -321,7 +321,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 </p>
 
 ### SPECIAL CATEGORY <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="40" alt="pj logo"><br>
-  <img src="https://cdn.discordapp.com/emojis/1318346709662957589.jpg" width="30" alt="fat yoyo"> YOYO'S BIGGEST HATER, NEWBUCK/PUCKBIE/MOUSEMANAGEMENT/SLUGTENNIS/NEWBIExPUCK CEO and PIDDLESJET'S PILOT = <a href="https://github.com/screworangeslugs">screworangeslugs</a>
+  <img src="https://cdn.discordapp.com/emojis/1318346709662957589.jpg" width="30" alt="fat yoyo"> YOYO'S BIGGEST HATER, NEWBUCK/PUCKBIE/MOUSEMANAGEMENT/SLUGTENNIS/NEWBIExPUCK CEO and PIDDLESJET'S PILOT = <a href="https://github.com/haIImarkcards">haIImarkcards</a>
 
   <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Wanderer Yumeshipper = <a href="https://github.com/WanderersWife">WanderersWife</a> 
 
