@@ -16,7 +16,7 @@ inspiration is fine, though if you take heavy inspo put visible credits ok ;0) -
 </p> 
 
 <p>
-  <img align="right" width="400" src="https://i.postimg.cc/LX9dxFv6/piddlesjet-computer-2.png">
+  <img align="right" width="400" src="https://i.postimg.cc/3wKDqKDZ/pumpkin-piddlesjet-computer.png">
 </p>
 
 <p align="left">
