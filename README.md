@@ -1,6 +1,6 @@
 <!--
 hey what are u doing here. hey. get out now. hey. throws shoes at you.
-inspiration is fine, though if you take heavy inspo put visible credits ok ;0) -pilot
+inspiration is fine, though if you take heavy inspo put visible credits ok ;0) don't use our vectors, Pilot worked very hard on them. -pilot
 -->
 
 <p align="center">
