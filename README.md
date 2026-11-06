@@ -43,7 +43,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 <br clear="left" />
 
 <p>
-  <img align="right" width="400" src="https://i.postimg.cc/3wk5y3tj/puck-upd-list.png">
+  <img align="right" width="350" src="https://i.postimg.cc/3wk5y3tj/puck-upd-list.png">
 </p>
 
 <p align="left">
