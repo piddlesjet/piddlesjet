@@ -42,6 +42,36 @@ Feeling intrigued yet? Well, you'll need to hold on to your horses for a bit. Yo
 If you have anything to ask, ask away IN the atabook! However, if we happen to add someone problematic, please provide proof in <a href="https://piddlesjet.straw.page/">our strawpage</a>. False/unserious reports are forbidden and will be ignored. Questions will be answered <a href="https://github.com/piddlesjet/jetpiddles">here</a>.
 <br clear="left" />
 
+<p>
+  <img align="right" width="400" src="https://i.postimg.cc/3wk5y3tj/puck-upd-list.png">
+</p>
+
+<p align="left">
+  <img src="https://i.postimg.cc/L6PpD4Sh/updates-pj-note.png" alt="pj upd" width="200"> 
+</p> 
+
+This here is the update catalogue. Here, we list everything that was added lately here, so things are easier to take track of. We catalogue things such as events, holiday reskins, and more! Nomination list updates won't count here.
+
+LAST UPDATED : 11/6/26
+
+***UPDATE LIST ADDED***
+
+<details>
+  <summary>CLICK HERE FOR MORE UPDATES</summary>
+
+***6/11/26: CHRISTMAS RESKIN***
+
+***31/10/26: HALLOWEEN RESKIN***
+
+***28/10/26: PIDDLES.JET RETHEME***
+
+***26/10/26: PIDDLES.JET CREATED***
+
+</details>
+
+</div>
+<br clear="right" />
+
 <p align="left">
   <img src="https://i.postimg.cc/mktZhBs4/piddles-jet-onboard-rules-div.png" alt="onb div" width="500">
 </p> 
