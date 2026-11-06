@@ -26,8 +26,7 @@ inspiration is fine, though if you take heavy inspo put visible credits ok ;0) d
 
 Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our airlines. Piddles.jet is a GitHub account that is a fan-run community project and nomination hub. we have an alphabetical directory mapping specific users to the characters they are widely recognized for cosplaying or characters they just generally like. We are only doing this for the purpose of entertainment and to make *everyone* feel included! You may nominate ANYONE... Even yourself! We update our lists at least 2 times a week. <img src="https://i.postimg.cc/2yJVdTdX/ezgif-com-gif-maker-(2).gif" width="30" alt="j">
 
-... I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. to your upper right, you can see our *little* mascot, Piddlesjet! She's a *little* critter-jet, almost identical to her canon counterpart - if you ignore the fact she's a hundred times bigger now! ~~don't ask how Piddles became a jet... You'll call CPS (Critter Protective Services) on us!~~
-<br clear="right" />
+... I know it's a bit obvious, but we are themed off of Hoops&Yoyo, particularly of the character Piddles... and jets! You heard me right. to your upper right, you can see our *little* mascot, Piddlesjet! She's a *little* critter-jet, almost identical to her canon counterpart - if you ignore the fact she's a hundred times bigger now! ~~don't ask how Piddles became a jet... You'll call CPS (Critter Protective Services) on us!~~ 
 
 <p>
   <a href="https://piddlesjet.atabook.org/"><img align="left" width="300" src="https://i.postimg.cc/FRXLkDrt/flight-attendant-hoops.png">
@@ -54,7 +53,7 @@ This here is the update catalogue. Here, we list all the changes that have been 
 
 LAST UPDATED : 11/6/26
 
-***UPDATE LIST ADDED***
+***UPDATE LIST ADDED , OFFICIAL LINKED BUTTON STAMP ADDED***
 
 <details>
   <summary>CLICK HERE FOR MORE UPDATES</summary>
@@ -97,6 +96,14 @@ LAST UPDATED : 11/6/26
 <p align="left">
   <img src="https://i.postimg.cc/kXSwzHVY/nomination-pj-div.png" alt="nomi div" width="500"> <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="140" alt="pj logo"><br>
 </p> 
+
+<details>
+  <summary>LINK TO US ON YOUR GIT!</summary>
+
+  <img src="https://i.postimg.cc/X78w2z5D/pj-button.jpg" width="~" alt="buttonlinkie"> 
+<br clear="right" />
+
+</details>
 
 ㅤ Here comes the fun part!
 
