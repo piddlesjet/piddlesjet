@@ -13,7 +13,7 @@ inspiration is fine, though if you take heavy inspo put visible credits ok ;0) d
 </p> 
 
 <p align="right">
-  <img src="https://komarev.com/ghpvc/?username=piddlesjet&color=97cdd4&style=plastic&abbreviated=true&label=/PIDDLES.JET" alt="pj views" width="100">  
+  <img src="https://komarev.com/ghpvc/?username=piddlesjet&color=97cdd4&style=plastic&label=/PIDDLES.JET" alt="pj views" width="100">  
 </p> 
 
 <p>
