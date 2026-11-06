@@ -1,6 +1,7 @@
 <!--
 hey what are u doing here. hey. get out now. hey. throws shoes at you.
-inspiration is fine, though if you take heavy inspo put visible credits ok ;0) don't use our vectors, Pilot worked very hard on them. -pilot
+
+inspiration is fine, though if you take heavy inspo put visible credits ok ;0) don't use our vectors, Pilot worked very hard on them, and he doesn't take kindly to theives. -pilot
 -->
 
 <p align="center">
@@ -76,7 +77,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
 ### ***ALWAYS ONLINE***
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/h6xoi">h6xoi</a> , <a href="https://github.com/nocturnuII">nocturnuII</a> , <a href="https://github.com/RingmasterAI">RingmasterAI</a> , <a href="https://github.com/BetrayedNotes">BetrayedNotes</a> , <a href="https://github.com/Cookiecatsoyummy">Cookiecatsoyummy</a> , <a href="https://github.com/KALININGRAD-OBLAST">KALININGRAD-OBLAST</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a> , <a href="https://github.com/fou11egacy">fou11egacy</a>
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/h6xoi">h6xoi</a> , <a href="https://github.com/nocturnuII">nocturnuII</a> , <a href="https://github.com/RingmasterAI">RingmasterAI</a> , <a href="https://github.com/BetrayedNotes">BetrayedNotes</a> , <a href="https://github.com/Cookiecatsoyummy">Cookiecatsoyummy</a> , <a href="https://github.com/KALININGRAD-OBLAST">KALININGRAD-OBLAST</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a> , <a href="https://github.com/fou11egacy">fou11egacy</a> , <a href="https://github.com/ultluck">ultluck</a>
 
 
 ### ***PRETTIEST SKINS***
@@ -86,7 +87,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/l0veis4ika">l0veis4ika</a> ,   <a href="https://github.com/yvoisen">yvoisen</a> ,   <a href="https://github.com/shurilong">shurilong</a> , <a href="https://github.com/haIImarkcards">haIImarkcards</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a>
 
 ### ***CUDDLE BUGS***
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/deadbridewalking">deadbridewalking</a> , <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a> , <a href="https://github.com/Flayedrocker">Flayedrocker</a> ,   <a href="https://github.com/z0mbiepup">z0mbiepup</a> , <a href="https://github.com/SEONSQUID">SEONSQUID</a> , <a href="https://github.com/livingforest">livingforest</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a> , <a href="https://github.com/thefinalchesspiece">thefinalchesspiece</a>
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/deadbridewalking">deadbridewalking</a> , <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a> , <a href="https://github.com/Flayedrocker">Flayedrocker</a> ,   <a href="https://github.com/z0mbiepup">z0mbiepup</a> , <a href="https://github.com/SEONSQUID">SEONSQUID</a> , <a href="https://github.com/livingforest">livingforest</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a> , <a href="https://github.com/thefinalchesspiece">thefinalchesspiece</a> , <a href="https://github.com/ultluck">ultluck</a>
 
 ### ***CHARACTER NOMINATIONS***
 
@@ -95,6 +96,8 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/2099s">2099s</a> $\color{#0098d2}\text{is Pony Town's Miguel O'Hara (ACROSS THE SPIDERVERSE) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/2quet">2quet</a> $\color{#0098d2}\text{is Pony Town's Scag (REGRETAVTOR) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/2ulloxCaptor">2ulloxCaptor</a> $\color{#0098d2}\text{is Pony Town's Sollux (HOMESTUCK) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/5orrows">5orrows</a> $\color{#0098d2}\text{is Pony Town's Ichigo Kurosaki (BLEACH) !}$
 
@@ -216,6 +219,8 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/">HOTGUY-045</a> $\color{#0098d2}\text{is Pony Town's HOTGUY-045 (DOUBLE HEARTED/DDVAU) !}$  
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/hideousdestruction">hideousdestruction</a> $\color{#0098d2}\text{is Pony Town's Destroyer Mode Itoshi Rin (BLUE LOCK) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/itrap-2245">itrap-2245</a> $\color{#0098d2}\text{is Pony Town's iTrapped (MM12) and Furina (GENSHIN) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/ibeatangels">ibeatangels</a> $\color{#0098d2}\text{is Pony Town's Ciel Phantomhive (BLACK BUTLER) !}$
@@ -237,6 +242,8 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/kniferrific">kniferrific</a> $\color{#0098d2}\text{is Pony Town's Itzskeetxd662 (ITZSKEETPLAYS ARG) and Mrdoombringer (ROBLOX ADMINS/FORSAKEN) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/kirbysaps">kirbysaps</a> $\color{#0098d2}\text{is Pony Town's Saparata (MCYT/STATE SMP) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/kalashnicolas">kalashnicolas</a> $\color{#0098d2}\text{is Pony Town's Pip and Craig (SOUTH PARK) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/larpchan">larpchan</a> $\color{#0098d2}\text{is Pony Town's SpokeIsHere (UU) !}$
 
@@ -314,6 +321,8 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/resignationincident">resignationincident</a> $\color{#0098d2}\text{is Pony Town's Spongebob (SPONGEBOB SQUAREPANTS) and Armond (NICKELODEON RESIGNATION 2009) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/r0wlys">r0wlys</a> $\color{#0098d2}\text{is Pony Town's Sam Wilson (MCU MARVEL) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a> $\color{#0098d2}\text{is Pony Town's BMO (ADVENTURE TIME) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Supreme-Angel">Supreme-Angel</a> $\color{#0098d2}\text{is Pony Town's Gabriel and Minos prime (ULTRAKILLS) !}$
@@ -362,6 +371,10 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/theemotionalside">theemotionalside</a> $\color{#0098d2}\text{is Pony Town's The Heart (CHONNY'S CHARMING CHAOS COMPENDIUM) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/TheLongLongHoliday">TheLongLongHoliday</a> $\color{#0098d2}\text{is Pony Town's Lt. Commander Data and Lore (STAR TREK) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/tomatosu">tomatosu</a> $\color{#0098d2}\text{is Pony Town's Sasuke (NARUTO) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/UNLEASH-NOLI">UNLEASH-NOLI</a> $\color{#0098d2}\text{is Pony Town's NOLI (ROBLOX , ALL ITERATIONS) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/VArtfultrust">VArtfultrust</a> $\color{#0098d2}\text{is Pony Town's Eggchan (UNSTABLE SMP) !}$
@@ -390,7 +403,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
   <img align="right" width="400" src="https://i.postimg.cc/KjGN7Qsp/ezgif-maker.gif">
 </p>
 
-### SPECIAL CATEGORY <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="40" alt="pj logo"><br>
+### CUSTOM TITLES <img src="https://i.postimg.cc/vHfh6MBv/piddlesjet.png" width="40" alt="pj logo"><br>
   <img src="https://cdn.discordapp.com/emojis/1318346709662957589.jpg" width="30" alt="fat yoyo"> YOYO'S BIGGEST HATER, NEWBUCK/PUCKBIE/MOUSEMANAGEMENT/SLUGTENNIS/NEWBIExPUCK and HOOPBIRD/BLUEHOOP/AZUREVETERAN/KITTYSHOT/HOOPSxBLUEBIRD CEO and PIDDLESJET'S PILOT = <a href="https://github.com/haIImarkcards">haIImarkcards</a>
 
   <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Wanderer Yumeshipper = <a href="https://github.com/WanderersWife">WanderersWife</a> 
@@ -408,6 +421,8 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
   <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Lawrie Yumeshipper = <a href="https://github.com/LAWRlE">LAWRlE</a>     
 
   <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Natural Harmonia Gropius Yumeshipper = <a href="https://github.com/naturalharmoniaa">naturalharmoniaa</a>     
+
+  <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Hajime Hinata Yumeshipper = <a href="https://github.com/ultluck">ultluck</a>     
 <!--
 copy&paste im too lazy bleeeeh
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/"></a> $\color{#0098d2}\text{is Pony Town's j (j) !}$
