@@ -37,7 +37,7 @@ Welcome to Piddles.jet Airlines, passenger! You are one of many to step onto our
   <img src="https://i.postimg.cc/VL9mzgT7/nomination-pj.png" alt="pj nomi note" width="200"> 
 </p> 
 
-Feeling intrigued yet? Well, you'll need to hold on to your horses for a bit. You'll need to follow a set of rules! Don't worry; they're not too complicated to follow. READ IT! (scroll down)... Did you read it? that's great! Now, once you're ready, hand your nomination ticket over to Hoops. He's on your left! (click him)
+Feeling intrigued yet? Well, you'll need to hold on to your horses for a bit. You'll need to follow a set of rules! Don't worry; they're not too complicated to follow. (scroll down)... Did you read it? that's great! Now, once you're ready, hand your nomination ticket over to Hoops. He's on your left! (click him)
 
 If you have anything to ask, ask away IN the atabook! However, if we happen to add someone problematic, please provide proof in <a href="https://piddlesjet.straw.page/">our strawpage</a>. False/unserious reports are forbidden and will be ignored. Questions will be answered <a href="https://github.com/piddlesjet/jetpiddles">here</a>.
 <br clear="left" />
@@ -50,7 +50,7 @@ If you have anything to ask, ask away IN the atabook! However, if we happen to a
   <img src="https://i.postimg.cc/L6PpD4Sh/updates-pj-note.png" alt="pj upd" width="200"> 
 </p> 
 
-This here is the update catalogue. Here, we list everything that was added lately here, so things are easier to take track of. We catalogue things such as events, holiday reskins, and more! Nomination list updates won't count here.
+This here is the update catalogue. Here, we list all the changes that have been added lately, so things are easier to take track of. We catalogue things such as events, holiday reskins, and more! Nomination list updates won't count here.
 
 LAST UPDATED : 11/6/26
 
