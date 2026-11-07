@@ -85,7 +85,9 @@ LAST UPDATED : 11/6/26
 
 ㅤ 5. Please be specific when nominating something. Include the GitHub user, character name, source and category! none of those = ignored
 
-ㅤ 6. Basic rules, you know the drill! 
+ㅤ 6. Characters from problematic medias will always be ignored. We do not permit anything that may be too mature, or generally weird.
+
+ㅤ 7. Basic rules, you know the drill! 
 
 </p>
 
@@ -109,7 +111,7 @@ LAST UPDATED : 11/6/26
 
 ### ***POPULAR PEOPLE (195+ FOLLOWERS)***
 
-   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> , <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/8-baII">8-baII</a> , <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/RingmasterAI">RingmasterAI</a> , <a href="https://github.com/evbomc">evbomc</a> , <a href="https://github.com/spam-tune">spam-tune</a> ,   <a href="https://github.com/constrz">constrz</a> ,   <a href="https://github.com/yvoisen">yvoisen</a> , <a href="https://github.com/shurilong">shurilong</a> ,   <a href="https://github.com/bigguykoi">bigguykoi</a> ,   <a href="https://github.com/re0-mikage">re0-mikage</a> ,   <a href="https://github.com/mydeiirl">mydeiirl</a> , <a href="https://github.com/kniferrific">kniferrific</a> , <a href="https://github.com/01-800-papu">01-800-papu</a> , <a href="https://github.com/kursein">kursein</a> , <a href="https://github.com/MrNovalite">MrNovalite</a> , <a href="https://github.com/altruistdeviil">altruistdeviil</a> , <a href="https://github.com/yaoiautism">yaoiautism</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a> , <a href="https://github.com/qnakin">qnakin</a> , <a href="https://github.com/love-bullet">love-bullet</a> , <a href="https://github.com/lonesomestreet">lonesomestreet</a>
+   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/nocturnuII">nocturnuII</a> , <a href="https://github.com/ringodemon">ringodemon</a> , <a href="https://github.com/8-baII">8-baII</a> , <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/RingmasterAI">RingmasterAI</a> , <a href="https://github.com/evbomc">evbomc</a> , <a href="https://github.com/spam-tune">spam-tune</a> ,   <a href="https://github.com/constrz">constrz</a> ,   <a href="https://github.com/yvoisen">yvoisen</a> , <a href="https://github.com/shurilong">shurilong</a> ,   <a href="https://github.com/bigguykoi">bigguykoi</a> ,   <a href="https://github.com/re0-mikage">re0-mikage</a> ,   <a href="https://github.com/mydeiirl">mydeiirl</a> , <a href="https://github.com/kniferrific">kniferrific</a> , <a href="https://github.com/01-800-papu">01-800-papu</a> , <a href="https://github.com/kursein">kursein</a> , <a href="https://github.com/MrNovalite">MrNovalite</a> , <a href="https://github.com/altruistdeviil">altruistdeviil</a> , <a href="https://github.com/yaoiautism">yaoiautism</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a> , <a href="https://github.com/qnakin">qnakin</a> , <a href="https://github.com/love-bullet">love-bullet</a> , <a href="https://github.com/lonesomestreet">lonesomestreet</a> , <a href="https://github.com/dessert-kitty">dessert-kitty</a>
 
 
 ### ***ALWAYS ONLINE***
@@ -206,6 +208,8 @@ LAST UPDATED : 11/6/26
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/doctororororororororororororor">doctororororororororororororor</a> $\color{#0098d2}\text{is Pony Town's Mario Gotze (FOOTBALL) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/dantestheonefr">dantestheonefr</a> $\color{#0098d2}\text{is Pony Town's Dante (DEVIL MAY CRY 3) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/eversleeping-town">eversleeping-town</a> $\color{#0098d2}\text{is Pony Town's Ada Wong (RESIDENT EVIL) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/evbomc">evbomc</a> $\color{#0098d2}\text{is Pony Town's Evbo- (PVP CIV/PARKOUR CIV) !}$
@@ -213,6 +217,8 @@ LAST UPDATED : 11/6/26
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Epaxialfx">Epaxialfx</a> $\color{#0098d2}\text{is Pony Town's Epaxialfx (MCYT) !}$  
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/erisolsprites">erisolsprites</a> $\color{#0098d2}\text{is Pony Town's Erisolsprite (HOMESTUCk) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/elli0tthec00ll">elli0tthec00ll</a> $\color{#0098d2}\text{is Pony Town's Scythe Rifle (P!) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/fou11egacy">fou11egacy</a> $\color{#0098d2}\text{is Pony Town's Tartaglia/Childe (GENSHIN IMPACT) !}$
 
@@ -300,6 +306,8 @@ LAST UPDATED : 11/6/26
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/love-bullet">love-bullet</a> $\color{#0098d2}\text{is Pony Town's Kaneki Ken (TOKYO GHOUL) and Matt (DEATH NOTE) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/LumineSyrupCookie">LumineSyrupCookie</a> $\color{#0098d2}\text{is Pony Town's Mabel Pines (GRAVITY FALLS) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/mydearmeIancholy">mydearmeIancholy</a> $\color{#0098d2}\text{is Pony Town's Power (CHAINSAW MAN) and Rebecca (CYBERPUNK EDGERUNNERS) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Maapicc">Maapicc</a> $\color{#0098d2}\text{is Pony Town's Mapicc (UU) !}$
@@ -332,6 +340,8 @@ LAST UPDATED : 11/6/26
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/newestalbum">newestalbum</a> $\color{#0098d2}\text{is Pony Town's Homelander (THE BOYS) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/NikaMokochi">NikaMokochi</a> $\color{#0098d2}\text{is Pony Town's Pizza Guy (PIZZA GAME BETA) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ober-redwines">Ober-redwines</a> $\color{#0098d2}\text{is Pony Town's White and Red (AMONG US SHOW) !}$  
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Pale-Garden">Pale-Garden</a> $\color{#0098d2}\text{is Pony Town's Swight ( UU/MCPVP ) !}$
@@ -363,6 +373,8 @@ LAST UPDATED : 11/6/26
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/resignationincident">resignationincident</a> $\color{#0098d2}\text{is Pony Town's Spongebob (SPONGEBOB SQUAREPANTS) and Armond (NICKELODEON RESIGNATION 2009) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/r0wlys">r0wlys</a> $\color{#0098d2}\text{is Pony Town's Sam Wilson (MCU MARVEL) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/roadbumps">roadbumps</a> $\color{#0098d2}\text{is Pony Town's Matcha Cookie (COOKIE RUN) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a> $\color{#0098d2}\text{is Pony Town's BMO (ADVENTURE TIME) !}$
 
@@ -397,6 +409,10 @@ LAST UPDATED : 11/6/26
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/sharpfrostcherv">sharpfrostcherv</a> $\color{#0098d2}\text{is Pony Town's Ivan (BAD THINGS) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/skippadonn">skippadonn</a> $\color{#0098d2}\text{is Pony Town's Jackson Storm (CARS 3 , PIXAR) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/SHADOWMlLKCOOKIE">SHADOWMlLKCOOKIE</a> $\color{#0098d2}\text{is Pony Town's Shadow Milk Cookie (CRK) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/sharpestvictory">sharpestvictory</a> $\color{#0098d2}\text{is Pony Town's Natsuki (DDLC) and Ein (APHMAU) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/THE-SAINT-OF-DEATH">THE-SAINT-OF-DEATH</a> $\color{#0098d2}\text{is Pony Town's Roronoa Zoro (ONE PIECE) !}$
 
