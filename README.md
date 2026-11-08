@@ -120,10 +120,10 @@ LAST UPDATED : 11/6/26
 
 
 ### ***PRETTIEST SKINS***
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> , <a href="https://github.com/haIImarkcards">haIImarkcards</a> , <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/l0veis4ika">l0veis4ika</a> ,   <a href="https://github.com/fufuyio1206">fufuyio1206</a> , <a href="https://github.com/yvoisen">yvoisen</a> , <a href="https://github.com/faelightgex">faelightgex</a> , <a href="https://github.com/lesereine">lesereine</a> , <a href="https://github.com/ibeatangels">ibeatangels</a> , <a href="https://github.com/parameowia">parameowia</a> , <a href="https://github.com/pupfies">pupfies</a> , <a href="https://github.com/MrNovalite">MrNovalite</a> , <a href="https://github.com/loveholicc">loveholicc</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a>
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Ham-milton">Ham-milton</a> , <a href="https://github.com/haIImarkcards">haIImarkcards</a> , <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/l0veis4ika">l0veis4ika</a> ,   <a href="https://github.com/fufuyio1206">fufuyio1206</a> , <a href="https://github.com/yvoisen">yvoisen</a> , <a href="https://github.com/faelightgex">faelightgex</a> , <a href="https://github.com/lesereine">lesereine</a> , <a href="https://github.com/ibeatangels">ibeatangels</a> , <a href="https://github.com/parameowia">parameowia</a> , <a href="https://github.com/pupfies">pupfies</a> , <a href="https://github.com/MrNovalite">MrNovalite</a> , <a href="https://github.com/loveholicc">loveholicc</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a> , <a href="https://github.com/AntoneIIi">AntoneIIi</a>
   
 ### ***PRETTIEST LAYOUTS***
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/l0veis4ika">l0veis4ika</a> ,   <a href="https://github.com/yvoisen">yvoisen</a> ,   <a href="https://github.com/shurilong">shurilong</a> , <a href="https://github.com/haIImarkcards">haIImarkcards</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a>
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/itrap-2245">itrap-2245</a> , <a href="https://github.com/l0veis4ika">l0veis4ika</a> ,   <a href="https://github.com/yvoisen">yvoisen</a> ,   <a href="https://github.com/shurilong">shurilong</a> , <a href="https://github.com/haIImarkcards">haIImarkcards</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a> , <a href="https://github.com/love-bullet">love-bullet</a>
 
 ### ***CUDDLE BUGS***
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/deadbridewalking">deadbridewalking</a> , <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a> , <a href="https://github.com/Flayedrocker">Flayedrocker</a> ,   <a href="https://github.com/z0mbiepup">z0mbiepup</a> , <a href="https://github.com/SEONSQUID">SEONSQUID</a> , <a href="https://github.com/livingforest">livingforest</a> , <a href="https://github.com/Weepinglilies">Weepinglilies</a> , <a href="https://github.com/thefinalchesspiece">thefinalchesspiece</a> , <a href="https://github.com/ultluck">ultluck</a>
@@ -141,6 +141,8 @@ LAST UPDATED : 11/6/26
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/5orrows">5orrows</a> $\color{#0098d2}\text{is Pony Town's Ichigo Kurosaki (BLEACH) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/77crescentmoon">77crescentmoon</a> $\color{#0098d2}\text{is Pony Town's Edward ParrotX2 (UNSTABLE SMP) and Kyle (SOUTH PARK) !}$
+
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/9thharbinger">9thharbinger</a> $\color{#0098d2}\text{is Pony Town's Javier Escuella (RDR) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/A-Crescent-Shadow">A-Crescent-Shadow</a> $\color{#0098d2}\text{is Pony Town's Story Shift Chara (UNDERTALE AU) !}$
 
@@ -376,6 +378,8 @@ LAST UPDATED : 11/6/26
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/roadbumps">roadbumps</a> $\color{#0098d2}\text{is Pony Town's Matcha Cookie (COOKIE RUN) !}$
 
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/RoxXDark">RoxXDark</a> $\color{#0098d2}\text{is Pony Town's Ross (SPOOKY MONTH) and Illoost (MY SINGING MONSTERS) !}$
+
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/suntannedstepbrothr">suntannedstepbrothr</a> $\color{#0098d2}\text{is Pony Town's BMO (ADVENTURE TIME) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/Supreme-Angel">Supreme-Angel</a> $\color{#0098d2}\text{is Pony Town's Gabriel and Minos prime (ULTRAKILLS) !}$
@@ -484,6 +488,10 @@ LAST UPDATED : 11/6/26
   <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Natural Harmonia Gropius Yumeshipper = <a href="https://github.com/naturalharmoniaa">naturalharmoniaa</a>     
 
   <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Hajime Hinata Yumeshipper = <a href="https://github.com/ultluck">ultluck</a>     
+
+  <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Medkit and c!Wifies' Yumeshipper/Soulbonder = <a href="https://github.com/weepinglilies">weepinglilies</a>   
+
+  <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> The Colour Green's #1 SuperFan = <a href="https://github.com/p3rkcrds">p3rkcrds</a>     
 <!--
 copy&paste im too lazy bleeeeh
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/"></a> $\color{#0098d2}\text{is Pony Town's j (j) !}$
