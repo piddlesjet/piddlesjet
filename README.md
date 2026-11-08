@@ -481,7 +481,7 @@ LAST UPDATED : 11/6/26
 
   <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Sword Yumeshipper = <a href="https://github.com/Whispedvanilla">Whispedvanilla</a> 
 
-  <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Best Minesweeper Player = <a href="https://github.com/symbosisduo">symbosisduo</a>   
+  <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Best Minesweeper Player = <a href="https://github.com/symbiosisduo">symbiosisduo</a>   
 
   <img src="https://cdn.discordapp.com/emojis/1306440104629506129.png" width="30" alt="piddles heart"> Pony Town's Lawrie Yumeshipper = <a href="https://github.com/LAWRlE">LAWRlE</a>     
 
