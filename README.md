@@ -140,7 +140,7 @@ LAST UPDATED : 11/6/26
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/5orrows">5orrows</a> $\color{#0098d2}\text{is Pony Town's Ichigo Kurosaki (BLEACH) !}$
 
-  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/6-bloodhound-6">6-bloodhound-6</a> $\color{#0098d2}\text{is Pony Town's Thomas (^_^/HWWHP) and Fresh 'Sans' (UTMV) !}$
+  <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/6-bloodhound-6">6-bloodhound-6</a> $\color{#0098d2}\text{is Pony Town's Thomas (HWWHP) and Fresh 'Sans' (UTMV) !}$
 
   <img src="https://i.postimg.cc/05Vd3s2K/ezgif-com-gif-maker-(1).gif" width="30" alt="photoshoot"> <a href="https://github.com/77crescentmoon">77crescentmoon</a> $\color{#0098d2}\text{is Pony Town's Edward ParrotX2 (UNSTABLE SMP) and Kyle (SOUTH PARK) !}$
 
